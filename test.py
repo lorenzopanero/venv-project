@@ -1,1 +1,0 @@
-#Stiamo a vedere se è a posto o dovrò continuare a bestemmiare in aramaico
